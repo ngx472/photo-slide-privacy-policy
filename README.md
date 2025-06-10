@@ -1,1 +1,0 @@
-# photo-slide-privacy-policy
